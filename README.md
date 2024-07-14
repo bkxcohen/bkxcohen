@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bkxcohen a programmer samurai
+- 👋 Hi, I’m @bkxcohen - I'm just building stuff.. passionate about learning and solving problems
 - 
 
 
